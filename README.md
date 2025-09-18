@@ -1,1 +1,1 @@
-# IDEAS-TIH-Autumn-Internship---Section-1-Project
+# IDEAS-TIH-Autumn-Internship (Section-1-Project)
